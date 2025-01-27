@@ -1,0 +1,1 @@
+# YourChillSolitaire-App-Privacy-Policy
